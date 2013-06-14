@@ -3,6 +3,10 @@ Kanazawa.rb 10
 
 github collaboration test
 
+Elit amet laborum lorem odit dicta molestias est quos? Voluptatem odit voluptatum alias recusandae perferendis possimus dolor ratione porro? Autem aliquam cumque delectus accusantium ad impedit. Aliquam maiores amet veritatis!
+Elit quia cumque nihil obcaecati necessitatibus, explicabo. Minus exercitationem accusantium adipisci aspernatur adipisci. Nihil vitae laborum maxime saepe atque. Deserunt itaque autem quidem distinctio maiores vel, ipsa odit quam facere.
+Elit temporibus in neque qui dicta beatae cum vero. Id ea blanditiis eligendi beatae eum, fugiat itaque assumenda. Optio fugiat deserunt amet at cumque nesciunt. Amet fuga dolor perferendis placeat?
+
 Adipisicing unde laborum debitis accusamus sunt provident culpa deserunt. Delectus at asperiores ducimus dolores cupiditate fugit, neque eveniet commodi? Necessitatibus eum dolor minus debitis eum iste hic corporis deleniti temporibus!
 Amet cupiditate cum quos odio assumenda! Dicta quaerat ipsam nam in recusandae ex facilis architecto? Deleniti molestiae praesentium iure error quos nisi nemo assumenda. Voluptatum quas sint obcaecati et ad?
 Elit quisquam veritatis reprehenderit eligendi natus enim. Pariatur provident repudiandae dolore earum ipsa ipsum ea. Labore sit nam blanditiis libero voluptatibus? Illo animi impedit quae totam mollitia eum officia quibusdam?
